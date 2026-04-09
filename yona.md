@@ -1,0 +1,2 @@
+langkah praktikum
+1. 
